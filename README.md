@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **kbaladattu@gmail.com**
 
-- 📄 Know about my experiences [[https://drive.google.com/file/d/16iJjphvDgSeVaRQhULDKnCYhntDrvMrg/view?usp=drive_link](https://drive.google.com/file/d/1e-j_M_Z7niC3g1EFF8YXoGB4FW9pc9Ha/view?usp=sharing)]
+- 📄 Know about my experiences [[https://drive.google.com/file/d/1pixMHo0Si9wVnGQE5VsQ2mowfA6GnB3y/view?usp=drivesdk](https://drive.google.com/file/d/1pixMHo0Si9wVnGQE5VsQ2mowfA6GnB3y/view?usp=drivesdk)]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
